@@ -158,7 +158,6 @@ Sebagai syarat integrasi dan penguncian sistem ke dalam divisi eksperimen strate
 
 
 mas edan bagus
-( menerima sumbangan ) 
 
 
 
